@@ -1,6 +1,6 @@
 # Education
 
-* **2020-2024** B.S in Chemistry(Education), Soochow University
+* **2020-2024** B.S in Chemistry(Education), Soochow University, Jiangsu, PRC
 
 # Project
 
