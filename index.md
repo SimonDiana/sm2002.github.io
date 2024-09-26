@@ -14,7 +14,8 @@
 
 * 2024.06  Outstanding Graduates of Soochow University.
 
-# Links
+# Links & Contact
 
+* Email: [jsczfx1641501004@gmail.com]
 * Bilibili:[@Samarium今天吃什么](https://space.bilibili.com/10044859)
 
